@@ -3,7 +3,7 @@
 ![image](https://64.media.tumblr.com/5fc9d8cebf9a32c25ad97159ef8f3520/8e85736c52f5983f-94/s2048x3072/6828a10310cb6479ac368e5318ebceb792914875.pnj)
 
 
-                                           ﹒  @twinked  ﹕☆ ﹟    he  ·  him   :   ᯓ enfp !  ﹐
+                         ﹒  @twinked  ﹕☆ ﹟ " I don't need your permission to be a superhero . "  :   ᯓ enfp !  ﹐
                                                          serial strawpage doodler
                                      
 
