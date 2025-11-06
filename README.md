@@ -3,8 +3,8 @@
 ![image](https://64.media.tumblr.com/5fc9d8cebf9a32c25ad97159ef8f3520/8e85736c52f5983f-94/s2048x3072/6828a10310cb6479ac368e5318ebceb792914875.pnj)
 
 
-                                          ﹒  @twinked  ﹕☆ ﹟    he  ·  him   :   ᯓ enfp !  ﹐
-                                                          serial strawpage doodler
+                                           ﹒  @twinked  ﹕☆ ﹟    he  ·  him   :   ᯓ enfp !  ﹐
+                                                         serial strawpage doodler
                                      
 
 ![image](https://64.media.tumblr.com/a9ebb334f5464b274aa40876116e8aff/8e85736c52f5983f-c6/s2048x3072/8d1e8efdee304876ac66f9283b648c89ae6e3252.pnj)
