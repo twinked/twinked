@@ -1,7 +1,7 @@
 
 
                          ﹒  @twinked  ﹕☆ ﹟ " your actions . that's what makes you who you are . "  :   ᯓ enfp !  ﹐
-                                                         serial strawpage doodler
+                                                              irl clark kent
                                      
 
 ![image](https://64.media.tumblr.com/f6e7d9f600ba4d2bde8dd17bdc6a98e8/82dbabeaec717498-1c/s2048x3072/9c2bfcbb3e8237eb727a91c09cc146204bc06401.gifv)
